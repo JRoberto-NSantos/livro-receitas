@@ -1,8 +1,6 @@
-# Strogonoff de carne
+# Strogonoff de carne 🍖 
 
-### Ingredientes
-
-Ingredientes
+### Ingredientes  
 
 + 500 g de carne em tiras finas filé mignon, contra-filé  
 + 1 pitada de pimenta-do-reino  
